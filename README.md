@@ -6,7 +6,7 @@
 - 👑 I was rewarded some prizes and certificates about coding (never mind, it don't make sense 😂)
 - 💞️ I’m looking to collaborate on a Python project
 - 📫 You can reach me via email: hoangkimmanhha@outlook.com
-- 😄 Pronouns: serious at work, fun at play, honest in luv, and really good at coding😁
+- 😄 Serious at work, fun at play, honest in luv, and really good at coding😁
 - ⚡ Fun fact: I don't have gf LOL😂
 
 <!---
